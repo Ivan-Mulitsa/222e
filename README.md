@@ -1,0 +1,2 @@
+# sprawdzian1_mulitsa_1P_gr2
+sprawdzian
